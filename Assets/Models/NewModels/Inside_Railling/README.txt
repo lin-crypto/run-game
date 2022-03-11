@@ -1,0 +1,2 @@
+- You can copy it and do Mirror for the left one
+- Same Texture as the first Railling
